@@ -5,12 +5,14 @@ Esausto per il superlavoro, incapace di attività produttive, mi sono ritrovato 
 Il Twitter "di sinistra" può spesso essere una zona miserabile e scoraggiante.
 
 All'inizio di quest'anno, c'erano alcuni twitterstorm di alto profilo, in cui particolari figure che si identificavano di sinistra venivano "accusate" e condannate. Ciò che queste persone avevano detto era talvolta discutibile; ma, tuttavia, il modo in cui sono stati vilificati e perseguitati personalmente ha lasciato un residuo orribile: l'odore della cattiva coscienza e il moralismo da caccia alle streghe.
+
 La ragione per cui non ho parlato di nessuno di questi incidenti, mi vergogno di dirlo, è stata la paura.
 I bulli erano in un'altra parte del parco giochi. Non volevo attirare la loro attenzione su di me.
 L’aperta ferocia di questi scambi era accompagnata da qualcosa di più pervasivo, e per questo forse forse più debilitante: un'atmosfera di accanito risentimento.
 L'oggetto più frequente di questo risentimento è Owen Jones, e gli attacchi a Jones - la persona più responsabile della sensibilizzazione di classe nel Regno Unito negli ultimi anni - sono stati uno dei motivi per cui sono stato così abbattuto.
 Se questo è ciò che accade a un ala sinistra che sta effettivamente riuscendo a portare la lotta al centro della vita britannica, perché qualcuno dovrebbe seguirlo nel mainstream?
 L'unico modo per evitare che questo gocciolamento di abuso é rimanere in una posizione di impotente marginalità?
+
 Una delle cose che mi ha fatto uscire da questo stupore depressivo era andare all'Assemblea del Popolo di Ipswich, vicino a dove vivo.
 L'Assemblea del Popolo era stata accolta con i soliti ghigni e sbuffi.
 Questa è stata, ci è stato detto, un'acrobazia inutile, in cui i sinistrorsi dei media, incluso Jones, si stava espandendo in un'altra esibizione della cultura delle celebrità dall'alto in basso.
@@ -20,6 +22,7 @@ Ma la seconda metà dell'incontro ha visto attivisti della classe lavoratrice di
 Lungi dall'essere un altro esempio di sinistra gerarchica, l'Assemblea del popolo era un esempio di come la verticale può essere combinata con l'orizzontale: il potere e il carisma dei media potevano attirare persone che non erano mai state in precedenza a una riunione politica nella stanza, dove potevano parlare e fare strategie con attivisti esperti.
 L'atmosfera era anti-razzista e anti-sessista, ma rinfrescantemente libera dalla sensazione paralizzante di colpa e sospetto che incombe sul twitter di sinistra come una nebbia acida e soffocante.
 Poi c'era Russell Brand.
+
 Sono stato a lungo un ammiratore di Brand, uno dei pochi comici di spicco della scena attuale che proviene da un background di classe operaia.
 Negli ultimi anni, c'è stata un graduale ma spietato imborghesimento della commedia televisiva, con il prepotente sempliciotto ultra-elegante Michael McIntyre e una cupa pioviggine di blandi opportunisti laureati che dominano il palcoscenico.
 Il giorno prima che la famosa intervista di Brand con Jeremy Paxman fosse trasmessa su Newsnight, avevo visto lo spettacolo stand-up di Brand al Messiah Complex di Ipswich. Lo spettacolo era provocatoriamente pro-immigrante, filo-comunista, anti-omofobo, saturo di intelligenza della classe operaia e senza paura di mostrarlo, e queer come una volta era la cultura popolare (cioè niente a che fare con la pietà identitaria dalla faccia acida impostaci o dai moralizzatori sulla "sinistra" post-strutturalista). Malcolm X, Che, la politica come smantellamento psichedelico della realtà esistente: questo era comunismo come qualcosa di bello, sexy e proletario, invece di un sermone che scuoteva il dito.
