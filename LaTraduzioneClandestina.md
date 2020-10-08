@@ -3,6 +3,7 @@ Uscire dal Castello dei Vampiri
 Quest'estate ho preso seriamente in considerazione di ritirarmi da qualsiasi coinvolgimento in politica.
 Esausto per il superlavoro, incapace di attività produttive, mi sono ritrovato a vagare nei social network, mentre la depressione e la stanchezza aumentavano.
 Il Twitter "di sinistra" può spesso essere una zona miserabile e scoraggiante.
+
 All'inizio di quest'anno, c'erano alcuni twitterstorm di alto profilo, in cui particolari figure che si identificavano di sinistra venivano "accusate" e condannate. Ciò che queste persone avevano detto era talvolta discutibile; ma, tuttavia, il modo in cui sono stati vilificati e perseguitati personalmente ha lasciato un residuo orribile: l'odore della cattiva coscienza e il moralismo da caccia alle streghe.
 La ragione per cui non ho parlato di nessuno di questi incidenti, mi vergogno di dirlo, è stata la paura.
 I bulli erano in un'altra parte del parco giochi. Non volevo attirare la loro attenzione su di me.
